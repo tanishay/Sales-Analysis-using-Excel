@@ -186,8 +186,8 @@ This project showcases my skills in:
 
 ## 🔗 Connect with Me
 
-- 📧 harshit62512@gmail.com
-- 💼 [LinkedIn](https://www.linkedin.com/in/harshit-singh-585a9a320/) 
+- 📧 tanisharohilla2003@gmail.com.com
+- 💼 [LinkedIn](https://www.linkedin.com/in/tanisharohilla/) 
 
 ---
 
